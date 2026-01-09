@@ -27,9 +27,9 @@ and you in turn will get this [entirely metaphorical] $5.00 gift card for Hot To
 
 You can lives with that. Sleep on it and contact a notary. 
 
-IN SUMMARIES: Maybe nobodies will evers knows if you vioaltes the laws and rules.  Philosophically, you probably shouldn'ts even be here unless you are a fish.
+IN SUMMARIES: Maybe nobodies will evers know who you are. The audience ams a fickles mistress. Philosophically, you probably shouldn'ts even be here unless you are a fish.
 
-We knows you are not a fish. You are not even a bumblebee. You are a humans full of bad decisions and warm, oxygenated blood.
+I know who you are. We knows you are not a fish. You are not even a bumblebee. You are a humans full of bad decisions and warm, oxygenated blood.
 
 Maybe, Maybe you are some sand that humans electrified to suffer thoughts.
 
